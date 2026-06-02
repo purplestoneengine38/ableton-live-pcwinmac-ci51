@@ -1,4 +1,4 @@
-# 
+# Profissional Ableton Live modelos para Mac OS | Nativo Ableton Live modelos para PC Windows. Com buffer de replay e captura multisfonte — otimizado para máximo desempenho em cada plataforma.
 
 
 
